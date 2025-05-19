@@ -1,3 +1,7 @@
+⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ![](https://komarev.com/ghpvc/?username=skeph&style=plastic&color=78ffff)
+
+⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=Normal+About+SkepHalo;I+Love+SkepHalo/HappyDuo+^_*)](https://git.io/typing-svg)
+
 ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ![](https://files.catbox.moe/b37ghe.png)
 
 ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀C*h is always free. I struggle With Social Anxiety
